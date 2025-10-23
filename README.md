@@ -40,6 +40,6 @@ I'm a passionate **[Data Analyst / Aspiring Web Developer]** with experience in 
 
 - **[Personal Website / Blog]**([your_website_or_blog_link](https://sites.google.com/view/nateapp?usp=sharing))
 - **[LinkedIn]**(www.linkedin.com/in/nathan-appiah-kubi-784792243)
-- **[Twitter]**(your_twitter_profile_link)
+- **[Twitter]**([your_twitter_profile_link](https://x.com/nateappk?t=B4GRcvNQOXM8QUWJnTE0oA&s=09))
 
 
